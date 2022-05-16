@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NOT-Xensei123
 - 👀 I’m interested in Software Enginnering
-- 🌱 I’m currently learning highschool oding little grind
+- 🌱 I’m currently learning highschool doing little grind
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
